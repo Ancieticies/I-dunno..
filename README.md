@@ -1,2 +1,1 @@
-# I-dunno..
-Hi, I'm known as Z. Or Ancities, Ricky and Henry ig..
+Hi, I'm known as Z or zest or saomehting.. chromia ig idk pls
